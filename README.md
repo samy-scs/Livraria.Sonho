@@ -1,2 +1,2 @@
-# Livraria.Sonho
+# 🌸 Livraria Sakura 🌸
 Um espaço para leitura.
